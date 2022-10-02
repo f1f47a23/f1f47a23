@@ -1,9 +1,5 @@
 ### Hi there 👋
 
-<!--
-**f1f47a23/f1f47a23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on xrp ledger
 - 🌱 I’m currently learning many things
@@ -13,4 +9,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: the first house at the end of the street on the right
 - 😄 Pronouns: black sheep
 - ⚡ Fun fact: busy doing nothing
--->
+
