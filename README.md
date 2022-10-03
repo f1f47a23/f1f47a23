@@ -9,5 +9,5 @@
 - 💬 Ask me about the planet of the 🐑🐑🐑 the anthill 🐜🐜🐜  and the black ⬤
 - 📫 How to reach me: the first 🏠, at the end of the 🛣️, on the right, over the 🌈
 - 😄 Pronouns: black 🐑
-- ⚡ Fun fact: if you strictly follow the rules, the rules make fun of you
+- ⚡ Fun fact: [if you strictly follow the rules, the rules make fun of you](https://youtu.be/4iQKs21U_6o)
 
