@@ -9,5 +9,5 @@
 - 💬 Ask me about the [planet of the 🐑🐑🐑](https://youtu.be/kfFuckTgnc4) the [anthill 🐜🐜🐜](https://youtu.be/T2f1pnU-0XE)  and the black ⬤
 - 📫 How to reach me: the first 🏠, at the end of the 🛣️, on the right, [over the 🌈](https://youtu.be/V1bFr2SWP1I)
 - 😄 Pronouns: [black 🐑](https://youtu.be/pDo18tfPITA)
-- ⚡ Fun fact: [if you strictly follow the rules, the rules make fun of you](https://youtu.be/4iQKs21U_6o)
+- ⚡ Fun fact: [if you strictly follow the rules](https://youtu.be/4iQKs21U_6o), the rules [make fun of you](https://youtu.be/xrTUmYxnNlo)
 
