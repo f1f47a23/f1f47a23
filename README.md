@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working on xrp ledger
+- 🔭 I’m currently working on xrp ledger client app
 - 🌱 I’m currently learning [things you 🐑 wouldn't believe](https://youtu.be/QefqJ7YhbWQ)
 - 👯 I’m looking to collaborate on make a vegetable 🥬 garden in the backyard
 - 🤔 I’m looking for help with horticulture 🥬 [poultry 🐔](https://youtu.be/0Y4eplg31yk) DIY 🛠 carpentry and a [home in the wood 🌳🌳🏠🌳🌳](https://youtu.be/T3NCVtQcoO8)
