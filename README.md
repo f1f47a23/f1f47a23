@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently [working](https://github.com/f1f47a23/AWESOME) on xrp [ledger](https://xrpl.org/) client [app](https://github.com/f1f47a23/z1x-xrp-wallet)
+- 🔭 I’m currently [working](https://github.com/f1f47a23/AWESOME) [freely](https://youtu.be/A9tb2hm6Yms) on xrp [ledger](https://xrpl.org/) client [app](https://github.com/f1f47a23/z1x-xrp-wallet)
 - 🌱 I’m currently learning things you wouldn't believe
 - 👯 I’m looking to collaborate on make a vegetable 🥬 garden in the [backyard](https://github.com/f1f47a23/the-animal-farm)
 - 🤔 I’m looking for help with horticulture 🥬 poultry 🐔 DIY 🛠 carpentry and a [home in the wood 🌳🌳🏠🌳🌳](https://youtu.be/T3NCVtQcoO8)
