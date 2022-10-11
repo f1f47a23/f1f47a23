@@ -9,5 +9,5 @@
 - 💬 Ask me [about](https://youtu.be/ZVPolwmpOUo) the [planet](https://youtu.be/zCBNwGHPZ2M) of the [🐑](https://youtu.be/-54c0IdxZWc) the anthill 🐜🐜🐜  and [the black ⬤](https://youtu.be/atMdf0rhbpI)
 - 📫 How to reach me: the [first 🏠](https://youtu.be/4iQKs21U_6o), at the [end](https://youtu.be/Cq4qfdOlVvY) of the 🛣️, on the right, [over the 🌈](https://youtu.be/V1bFr2SWP1I)
 - 😄 Pronouns: [black 🐑](https://youtu.be/pDo18tfPITA)
-- ⚡ Fun fact: if you strictly follow the rules, the [rules](https://youtu.be/NOCw4MoQ3xc) will [tease](https://youtu.be/xrTUmYxnNlo) you
+- ⚡ Fun fact: if you strictly follow the [rules](https://youtu.be/SO-yVHaAlyA), the [rules](https://youtu.be/NOCw4MoQ3xc) will [tease](https://youtu.be/xrTUmYxnNlo) you
 
