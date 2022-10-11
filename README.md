@@ -1,4 +1,4 @@
-### [Hi there 👋](https://youtu.be/I6FmwBPDT-w)
+### [Hi 👋](https://youtu.be/I6FmwBPDT-w)
 
 
 - 🔭 I’m currently [working](https://github.com/f1f47a23/AWESOME) on xrp [ledger](https://xrpl.org/) client [app](https://github.com/f1f47a23/z1x-xrp-wallet) in full [freedom](https://youtu.be/A9tb2hm6Yms) to act as it more seems appropriate to me, following the thread of my inspiration.
