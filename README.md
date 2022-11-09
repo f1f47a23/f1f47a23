@@ -2,5 +2,5 @@
  
 (ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ
 
-[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)
+[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)[仫](https://youtu.be/7DgoQCRZjdI)
 
