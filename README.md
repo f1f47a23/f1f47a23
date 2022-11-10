@@ -15,7 +15,7 @@
 
 ![activity](https://activity-graph.herokuapp.com/graph?username=f1f47a23&theme=minimal)
 
-![summary](https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=f1f47a23&theme=vue)
+![summry](https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=f1f47a23&theme=vue)
 
 ![tropy](https://github-profile-trophy.vercel.app/?username=f1f47a23)
 
