@@ -4,7 +4,7 @@
 
 [仫](https://youtu.be/7DgoQCRZjdI)[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)[仫](https://youtu.be/exzE6sH0aPQ)
 
-[🌎](f1f47a23.github.io/)
+[🌎](https://f1f47a23.github.io/)
 
 ## stats
 
