@@ -17,7 +17,7 @@
 
 ![summary](https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=f1f47a23&theme=vue)
 
-![trophy](https://github-profile-trophy.vercel.app/?username=f1f47a23)
+![tropy](https://github-profile-trophy.vercel.app/?username=f1f47a23)
 
 
 
