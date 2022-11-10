@@ -4,9 +4,14 @@
 
 [仫](https://youtu.be/7DgoQCRZjdI)[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)[仫](https://youtu.be/exzE6sH0aPQ)
 
+## stats
+
+
+![hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Ff1f47a231212%2Fhit-counter)
+
 ![stats](https://github-readme-stats.vercel.app/api?username=f1f47a23)
 
 ![langs](https://github-readme-stats.vercel.app/api/top-langs/?username=f1f47a23)
 
-![hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Ff1f47a231212%2Fhit-counter)
+
 
