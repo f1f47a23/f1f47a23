@@ -6,3 +6,5 @@
 
 ![stats](https://github-readme-stats.vercel.app/api?username=f1f47a23)
 
+![langs](https://github-readme-stats.vercel.app/api/top-langs/?username=f1f47a23)
+
