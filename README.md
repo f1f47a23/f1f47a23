@@ -4,3 +4,5 @@
 
 [仫](https://youtu.be/7DgoQCRZjdI)[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)[仫](https://youtu.be/exzE6sH0aPQ)
 
+[x](https://github-readme-stats.vercel.app/api?username={f1f47a23})
+
