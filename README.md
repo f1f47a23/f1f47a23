@@ -21,14 +21,13 @@
 
 ![langs](https://github-readme-stats.vercel.app/api/top-langs/?username=f1f47a23)
 
-![activity](https://activity-graph.herokuapp.com/graph?username=f1f47a23&theme=minimal)
-
 ![trophy](https://github-profile-trophy.vercel.app/api/?username=f1f47a23)
 
 ![streak](https://github-readme-streak-stats.herokuapp.com/?user=f1f47a23)
 
 ![summary](https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=f1f47a23&theme=vue)
 
+![activity](https://activity-graph.herokuapp.com/graph?username=f1f47a23&theme=minimal)
 
 
 
