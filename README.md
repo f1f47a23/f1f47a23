@@ -2,8 +2,6 @@
 <br><br><br>
 (ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ
 <br><br><br>
-ʇǝʎ dn uǝʞoʍ ʇ,uǝʌɐɥ noʎ suɐǝɯ ʇᴉ 'pǝʇᴉɯoʌ ʇ,uǝʌɐɥ noʎ ɟᴉ
-<br><br><br>
 [仫](https://youtu.be/7DgoQCRZjdI)[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)[仫](https://youtu.be/exzE6sH0aPQ)
 
 [🌎](https://f1f47a23.github.io/)
