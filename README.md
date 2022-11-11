@@ -1,7 +1,8 @@
 ### [Hi](https://youtu.be/I6FmwBPDT-w) [👋](https://youtu.be/pcLBtRMiyxA) [🐑](https://youtu.be/JgFgnXtF9Cc) [🐇](https://youtu.be/t3j_lyTrtG0) [🕳️](https://youtu.be/kfFuckTgnc4) [🤖](https://youtu.be/GcMXQZ69lSI) [🕳️](https://youtu.be/qHAKqVvGj3w) [🕳️](https://youtu.be/uFQhn8RW0Nk) [🕳️](https://youtu.be/atMdf0rhbpI) [🕳️](https://youtu.be/BVLvQcO7JGk) [🕳️](https://youtu.be/HbBmZPb2spk) [🕳️](https://youtu.be/6T_Rj47nm0Q) [🕳️](https://youtu.be/xy-NQzeXhYg) [👀](https://youtu.be/ZVPolwmpOUo) [🐑](https://youtu.be/1IIPJQ-1jlc) [🦠](https://youtu.be/QQPOdklAU3c) [🦠](https://youtu.be/gVZJb9aPd5s) [🐜](https://www.youtube.com/shorts/PIL-rOqlUog)
 <br><br><br>
 (ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ
-
+<br><br>
+(😍‿😍) tuut tuut (😍‿😍)<br>
 [🚂](https://youtu.be/q_qgVn-Op7Q)[🚃](https://youtu.be/RBJj_UwkSyc)[🚃](https://youtu.be/dgsqX-IxrKc)[🚃](https://youtu.be/ONifZ2NMMow)[🚃](https://youtu.be/kZgE_sUrXFY)[🐑](https://youtu.be/sutgWjz10sM)[🐑](https://youtu.be/zCBNwGHPZ2M)[🐑](https://youtu.be/_mkiGMtbrPM)[🐑](https://youtu.be/1zqAfRtMZSg)[🐑](https://youtu.be/O_Ed-GWY5zw)[🐑](https://youtu.be/23EmJYSjW-g)[🐑](https://youtu.be/Xtr13I2ZXC8)[🐑](https://youtu.be/rpQ8ipjg1b0)[🐑](https://youtu.be/gI4UpBjdJ3s)[🐑](https://youtu.be/j_y88KAPKW0)[🐑](https://youtu.be/ZVmMvH84DFg)[☯](https://youtu.be/gXQ32ooefxA)[☯](https://youtu.be/GMI1OYUv4Qo)[🖕](https://youtu.be/3fGQ8pF3wYU)[🖕](https://youtu.be/Xyzmv4390Z8)[🐑]()[🐑]()[🐑]()[🐺](https://youtu.be/2wZ7acowkC4)
 <br><br><br>
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)
