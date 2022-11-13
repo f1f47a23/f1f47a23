@@ -26,9 +26,9 @@
 
 ![hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Ff1f47a231212%2Fhit-counter)
 
-![stats](https://github-readme-stats.vercel.app/api?username=f1f47a23)
+![stats](https://github-readme-stats.vercel.app/api?username=f1f47a23&theme=blue-green)
 
-![langs](https://github-readme-stats.vercel.app/api/top-langs/?username=f1f47a23)
+![langs](https://github-readme-stats.vercel.app/api/top-langs/?username=f1f47a23&theme=blue-green)
 
 ![trophy](https://github-profile-trophy.vercel.app/api/?username=f1f47a23)
 
@@ -36,7 +36,7 @@
 
 ![summary](https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=f1f47a23&theme=vue)
 
-[![Stargazers over time](https://starchart.cc/Naereen/badges.svg)](https://starchart.cc/Naereen/badges)
+
 
 ![activity](https://activity-graph.herokuapp.com/graph?username=f1f47a23&theme=minimal)
 
