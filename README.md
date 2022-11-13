@@ -3,11 +3,13 @@
 (ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ
 <br><br>
 (😍‿😍) tuut tuut (😍‿😍)<br>
-[🚂](https://youtu.be/2wZ7acowkC4)[🚃](https://youtu.be/q_qgVn-Op7Q)[🚃](https://youtu.be/RBJj_UwkSyc)[🚃](https://youtu.be/dgsqX-IxrKc)[🐑](https://youtu.be/ONifZ2NMMow)[🐑](https://youtu.be/kZgE_sUrXFY)[🐑](https://youtu.be/sutgWjz10sM)[🐑](https://youtu.be/zCBNwGHPZ2M)[🐑](https://youtu.be/_mkiGMtbrPM)[🐑](https://youtu.be/1zqAfRtMZSg)[🐑](https://youtu.be/O_Ed-GWY5zw)[🐑](https://youtu.be/23EmJYSjW-g)[🐑](https://youtu.be/Xtr13I2ZXC8)[🐑](https://youtu.be/rpQ8ipjg1b0)[🐑](https://youtu.be/gI4UpBjdJ3s)[🐑](https://youtu.be/j_y88KAPKW0)[🐑](https://youtu.be/ZVmMvH84DFg)[☯](https://youtu.be/gXQ32ooefxA)[☯](https://youtu.be/GMI1OYUv4Qo)[☯](https://youtu.be/uaTyX8z1Zg0)[☯](https://youtu.be/g0LkJ2bv1rg)[🖕](https://youtu.be/3fGQ8pF3wYU)[🖕](https://youtu.be/Xyzmv4390Z8)[🐑](https://youtu.be/7O-C49VpS30)[🐑]()[🐺]()
+[🚂](https://youtu.be/2wZ7acowkC4)[🚃](https://youtu.be/q_qgVn-Op7Q)[🚃](https://youtu.be/RBJj_UwkSyc)[🚃](https://youtu.be/dgsqX-IxrKc)[🐑](https://youtu.be/ONifZ2NMMow)[🐑](https://youtu.be/kZgE_sUrXFY)[🐑](https://youtu.be/sutgWjz10sM)[🐑](https://youtu.be/zCBNwGHPZ2M)[🐑](https://youtu.be/_mkiGMtbrPM)[🐑](https://youtu.be/1zqAfRtMZSg)[🐑](https://youtu.be/O_Ed-GWY5zw)[🐑](https://youtu.be/23EmJYSjW-g)[🐑](https://youtu.be/Xtr13I2ZXC8)[🐑](https://youtu.be/rpQ8ipjg1b0)[🐑](https://youtu.be/gI4UpBjdJ3s)[🐑](https://youtu.be/j_y88KAPKW0)[🐑](https://youtu.be/ZVmMvH84DFg)[☯](https://youtu.be/gXQ32ooefxA)[☯](https://youtu.be/GMI1OYUv4Qo)[☯](https://youtu.be/uaTyX8z1Zg0)[🖕](https://youtu.be/3fGQ8pF3wYU)[🖕](https://youtu.be/Xyzmv4390Z8)[🐑](https://youtu.be/7O-C49VpS30)[🐑]()[🐺]()
 <br><br><br>
 
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)
-[🚧](https://www.youtube.com/shorts/aN_h3Rqjj6k)
+
+### Chen Style Tai Chi
+[☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)
 <br><br><br>
 [![Image](https://github.com/f1f47a23/f1f47a23/blob/main/mareux.jpg)](https://youtu.be/SlHSr-6ji0w)
 ### relaxing background music 2 listen while U write
