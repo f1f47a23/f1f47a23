@@ -8,7 +8,7 @@
 
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)
 
-### Chen Style Tai Chi [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)
+### 陳式太極拳 [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)
 <br><br><br>
 [![Image](https://github.com/f1f47a23/f1f47a23/blob/main/mareux.jpg)](https://youtu.be/SlHSr-6ji0w)
 ### relaxing background music 2 listen while U write
