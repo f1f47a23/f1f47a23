@@ -36,7 +36,7 @@
 
 ![summary](https://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=f1f47a23&theme=vue)
 
-[![GitHub stars](https://badgen.net/github/stars/Naereen/Strapdown.js)](https://GitHub.com/Naereen/StrapDown.js/stargazers/)
+[![Stargazers over time](https://starchart.cc/Naereen/badges.svg)](https://starchart.cc/Naereen/badges)
 
 ![activity](https://activity-graph.herokuapp.com/graph?username=f1f47a23&theme=minimal)
 
