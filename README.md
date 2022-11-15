@@ -5,12 +5,14 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br><br>
 (ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ (😍‿😍) tuut tuut (😍‿😍)<br>
 [🚂](https://youtu.be/2wZ7acowkC4)[🚃](https://youtu.be/q_qgVn-Op7Q)[🚃](https://youtu.be/RBJj_UwkSyc)[🚃](https://youtu.be/dgsqX-IxrKc)[🐑](https://youtu.be/ONifZ2NMMow)[👀](https://youtu.be/qh2QVTQ3NOw)[👀](https://youtu.be/bTpt5JH4TWs)[🐑](https://youtu.be/kZgE_sUrXFY)[🐑](https://youtu.be/sutgWjz10sM)[🐑](https://youtu.be/zCBNwGHPZ2M)[🐑](https://youtu.be/_mkiGMtbrPM)[🐑](https://youtu.be/1zqAfRtMZSg)[🐑](https://youtu.be/O_Ed-GWY5zw)[🐑](https://youtu.be/23EmJYSjW-g)[🐑](https://youtu.be/Xtr13I2ZXC8)[🐑](https://youtu.be/rpQ8ipjg1b0)[🐑](https://youtu.be/gI4UpBjdJ3s)[🐑](https://youtu.be/j_y88KAPKW0)[🐑](https://youtu.be/ZVmMvH84DFg)[☯](https://youtu.be/gXQ32ooefxA)[☯](https://youtu.be/GMI1OYUv4Qo)[☯](https://youtu.be/hvBKeyyjVjQ)[🥋](https://youtu.be/uaTyX8z1Zg0)[🖕](https://youtu.be/3fGQ8pF3wYU)[🖕](https://youtu.be/Xyzmv4390Z8)[🐑](https://youtu.be/7O-C49VpS30)[🐑]()[🐺]()
-<br><br><br>
+<br><br>
 
-[![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)
 
 ### 陳式太極拳 [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://youtu.be/RIn2ksyivT8)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)[🥋](https://youtu.be/qpG__DSvAyk)[🥋](https://youtu.be/g2c_-9kIjyU)
-<br><br><br>
+<br><br>
+
+[![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)<br>
+
 [![Image](https://github.com/f1f47a23/f1f47a23/blob/main/mareux.jpg)](https://youtu.be/SlHSr-6ji0w)
 ### relaxing background music 2 listen while U write
 - [仫](https://www.youtube.com/watch?v=IiE3-UkyV10&list=OLAK5uy_kLGJaJE5kzPNpI4SzcOfoZ5kl1KyH0Hro) [仫](https://www.youtube.com/watch?v=RBaZ3DCD3Lg&list=OLAK5uy_nTcjFDat0k_ZW85QestrqUOSN6VcLKPc4) [仫](https://www.youtube.com/watch?v=5zU-nOSI5z8&list=OLAK5uy_nMQ4kBeeov7vbF3kYkbT5PMkg3OJe_GPw) [仫](https://www.youtube.com/watch?v=1isbA6Pi69g&list=OLAK5uy_nQg_37r7nCYHjkbGloyuDagPfzPsFl1lk) [仫](https://www.youtube.com/watch?v=x3sp8EZoeiI&list=OLAK5uy_nedbEA6XqA5IE1bY0zHArICKXZgjbkd3s) 🔥 [仫](https://www.youtube.com/watch?v=YOhhnIpJqpg&list=OLAK5uy_k45Hdd-NJDgmRTYJIL_Ps7w-Jr4mD24Y4) [仫](https://www.youtube.com/watch?v=2hnOeE7UwWE&list=OLAK5uy_kXX_fQkcXhNEf1D4yoaUeo5CK75SddSWc) [仫](https://www.youtube.com/watch?v=wQvLzls6mIQ&list=OLAK5uy_lermRu9ku4ACmgwzF5T1Ow0LCD9cPvHQc) [仫](https://www.youtube.com/watch?v=Js7VM9_3XIQ&list=OLAK5uy_mk2yz0S4z79EX0CHV49XbFJ89vKuytKGU) [仫](https://www.youtube.com/watch?v=hSB7Rt1Pg0k&list=OLAK5uy_nbqeSy3P-zjLNPlMMlUFhADgQ6TK_bCcU) 🔥 
