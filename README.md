@@ -27,7 +27,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 
 ### stats
 
-![visitors](https://komarev.com/ghpvc/?username=f1f47a23&color=blueviolet&label=ǝɹǝɥ-ƃuᴉop-∩-ɹ-llǝɥ-┴-ʇɐɥʍ)
+![visitors](https://komarev.com/ghpvc/?username=f1f47a23&color=blueviolet&label=ǝɹǝɥ-ƃuᴉop-∩-ɹ-llǝɥ-┴-ʇɐɥʍ-ʎǝɥ)
 
 ![hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Ff1f47a231212%2Fhit-counter)
 
