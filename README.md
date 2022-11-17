@@ -8,7 +8,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br>
 ([ǝǝɟɐɔW uɥoſ](https://youtu.be/_hBjxVNA0i4)) dn ʞɔnɟ ┴ [ǝʞɐʍ](https://youtu.be/GLIv191WQSo)
 <br><br>
-### 陳式太極拳 [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://youtu.be/RIn2ksyivT8)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)[🥋](https://youtu.be/qpG__DSvAyk)[🥋](https://youtu.be/eCbmg4Zt_QA)[🥋](https://youtu.be/g2c_-9kIjyU)
+### 陳式太極拳 [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://youtu.be/RIn2ksyivT8)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)[☯](https://youtu.be/CE9vH3vtrr4)[🥋](https://youtu.be/qpG__DSvAyk)[🥋](https://youtu.be/eCbmg4Zt_QA)[🥋](https://youtu.be/g2c_-9kIjyU)
 <br><br>
 
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)<br>
