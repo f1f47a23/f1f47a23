@@ -4,8 +4,8 @@
 . . . . . . . . . . . . . . . . . . . . . . [🐜](https://youtu.be/W5DIOT23uFo). . . . . . . . . . . . . . . . . . . . . .<br>
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . <br>
 <br><br><br><br>
-. . . . . . . . . . . . . . . . . . . . . . [ԀƎƎ˥S∀ ⅄∀┴S](https://youtu.be/8HtBz_b_d9s) [⅄Ǝ8O](https://youtu.be/FfRgBTsI0io) [🏃‍♂️](https://t.me/socialmedia42)<br>
-. . . . . . . . . . . . . . . . . . . . . . [∀IpƎW W∀Ǝɹ┴SNI∀W](https://youtu.be/iz2DV7FWdds?t=218) [👀](https://youtu.be/bTpt5JH4TWs) [🪖](https://youtu.be/_hBjxVNA0i4)<br>
+. . . . . . . . . . . . . . . . . . . . . . [ԀƎƎ˥S∀ ⅄∀┴S](https://youtu.be/8HtBz_b_d9s) . . . . [⅄Ǝ8O](https://youtu.be/FfRgBTsI0io) . . . . [🏃‍♂️](https://t.me/socialmedia42)<br>
+. . . . . . . . . . . . . . . . . . . . . . [∀IpƎW W∀Ǝɹ┴SNI∀W](https://youtu.be/iz2DV7FWdds?t=218) . . . . [👀](https://youtu.be/bTpt5JH4TWs) . . . . [🪖](https://youtu.be/_hBjxVNA0i4)<br>
 <br><br><br><br>
 sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ sʇuɐ ǝɥʇ llɐ llᴉɥʇuɐ ǝɥʇ uᴉ<br>
 [🐜](https://youtu.be/ShB9ZONCITE)[🐜](https://youtu.be/xy-NQzeXhYg)[🐜](https://youtu.be/NuHvkU_gpMk)[🐜](https://youtu.be/JrBdYmStZJ4)[🐜](https://youtu.be/-6Wu0Q7x5D0)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐜](https://youtu.be/0JW60sTcp9k)[🐜](https://youtu.be/MJ-3fZ5E_h4)
