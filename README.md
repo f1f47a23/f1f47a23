@@ -17,7 +17,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br>
 ### 陳式太極拳 [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://youtu.be/RIn2ksyivT8)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)[☯](https://youtu.be/CE9vH3vtrr4)[🥋](https://youtu.be/qpG__DSvAyk)[🥋](https://youtu.be/eCbmg4Zt_QA)[🥋](https://youtu.be/g2c_-9kIjyU)
 <br><br>
-Poker [🂡](https://youtu.be/agrd7yYQSzU)[🂡](https://youtu.be/6Q4HE06tlOY)[🂡](https://youtu.be/JpvW1T7hXjo)[🂡](https://youtu.be/_mrNhIxOGzw)[🂡](https://youtu.be/ahwJF5AcsGA)[🂡](https://youtu.be/C7jy9VGuqEE)[🂡](https://youtu.be/IjdBaGy4boQ)[🂡](https://youtu.be/48uT6b0gFD0)[🂡](https://youtu.be/pLgEs6hjbGg)[🂡](https://youtu.be/I4LoGhyb2uc)[🂡]()[🂡]()
+Poker [🂡](https://youtu.be/agrd7yYQSzU)[🂡](https://youtu.be/6Q4HE06tlOY)[🂡](https://youtu.be/JpvW1T7hXjo)[🂡](https://youtu.be/_mrNhIxOGzw)[🂡](https://youtu.be/ahwJF5AcsGA)[🂡](https://youtu.be/C7jy9VGuqEE)[🂡](https://youtu.be/7ofzSK3Qy2s)[🂡](https://youtu.be/IjdBaGy4boQ)[🂡](https://youtu.be/48uT6b0gFD0)[🂡](https://youtu.be/pLgEs6hjbGg)[🂡](https://youtu.be/I4LoGhyb2uc)[🂡]()[🂡]()
 <br><br>
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)<br>
 
