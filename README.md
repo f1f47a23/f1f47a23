@@ -23,12 +23,7 @@ Poker [🂡](https://youtu.be/agrd7yYQSzU)[🂡](https://youtu.be/6Q4HE06tlOY)[�
 
 [![Image](https://github.com/f1f47a23/f1f47a23/blob/main/mareux.jpg)](https://youtu.be/SlHSr-6ji0w)
 ### relaxing background music 2 listen while U write
-- VAt1 [🛖](https://www.youtube.com/watch?v=IiE3-UkyV10&list=OLAK5uy_kLGJaJE5kzPNpI4SzcOfoZ5kl1KyH0Hro)['](https://steveroach.bandcamp.com/album/dream-tracker)
-- BM [仫](https://www.youtube.com/channel/UCkfrWpK3n8Kcw9kpbk1ZPVQ)
-- MV [仫](https://youtu.be/rIrEvUXVHtg) [仫](https://youtu.be/IMo3i_ukRRE) 
-- JK [仫](https://www.youtube.com/watch?v=5zU-nOSI5z8&list=OLAK5uy_nMQ4kBeeov7vbF3kYkbT5PMkg3OJe_GPw) [仫](https://www.youtube.com/watch?v=1isbA6Pi69g&list=OLAK5uy_nQg_37r7nCYHjkbGloyuDagPfzPsFl1lk)
-- JS [仫](https://www.youtube.com/watch?v=dT3DFgN6akI&list=OLAK5uy_kntP51lDg5nck12iRKL0j29gyCgHyq6_A)
-- SR [仫](https://www.youtube.com/@SteveRoachOfficial) [仫](https://www.youtube.com/channel/UCepS-kV4mOOgXwvP2_nCd4A)
+- VAt1[🛖](https://www.youtube.com/watch?v=IiE3-UkyV10&list=OLAK5uy_kLGJaJE5kzPNpI4SzcOfoZ5kl1KyH0Hro)['](https://steveroach.bandcamp.com/album/dream-tracker) BM[仫](https://www.youtube.com/channel/UCkfrWpK3n8Kcw9kpbk1ZPVQ) SR[仫](https://www.youtube.com/@SteveRoachOfficial) [仫](https://www.youtube.com/channel/UCepS-kV4mOOgXwvP2_nCd4A) MV[仫](https://www.youtube.com/@mysticalvibes6976) JK[仫](https://www.youtube.com/channel/UC1IA0Z9sskxlNtST1xRgEaQ) JS[仫](https://www.youtube.com/channel/UCV18zumcQB3tNOuQB8p2Xuw)
 - CSC [仫](https://www.youtube.com/watch?v=OcACj5AW81o&list=OLAK5uy_nxEzAhowCQf9spTvzYMlHMdg_d3OMD-vc) [仫](https://www.youtube.com/watch?v=oUzexxIynus&list=OLAK5uy_mLoKtIJTgKybUsqs_DYQLcHdOfz6XPlVA) 🔥 
 - SD [仫](https://www.youtube.com/watch?v=RBaZ3DCD3Lg&list=OLAK5uy_nTcjFDat0k_ZW85QestrqUOSN6VcLKPc4) [仫](https://www.youtube.com/watch?v=On0_biuPLTk&list=OLAK5uy_kwyvx_qUkePrdYOF2v34Na8WJm7_jR9GU) [仫](https://www.youtube.com/watch?v=7tobkfDOMaU&list=OLAK5uy_lT8kogUO2AG4YLB7Iju7LKH83aX7xjiek) [仫](https://www.youtube.com/watch?v=WdaLgZPBC4I&list=OLAK5uy_ky1URAv8NLWZatHsrO7iJpM5x1wJQx3n0)
 - GR [仫](https://www.youtube.com/watch?v=z76SgoNhLsE&list=OLAK5uy_lZqDXoZPx7Yjm4J6RrH9-4p67EFDcakFE) [仫](https://www.youtube.com/watch?v=YOhhnIpJqpg&list=OLAK5uy_k45Hdd-NJDgmRTYJIL_Ps7w-Jr4mD24Y4) [仫](https://www.youtube.com/watch?v=_25SAynxrFU&list=OLAK5uy_n7MQBk1_fvX0c9e1cjO5qob23j_l_cnzU) [仫](https://www.youtube.com/watch?v=AdIjgcP7_NA&list=OLAK5uy_leyG1weMjC0Q6aJbv5P4gGCIvxahsqm7c) [仫](https://www.youtube.com/watch?v=viIRFolPmZM&list=OLAK5uy_kOTiSbVBfQMWc5DvFNSHOl422YlHIEZFM) 🔥 
