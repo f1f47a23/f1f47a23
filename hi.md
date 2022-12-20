@@ -12,7 +12,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 [🐜](https://youtu.be/ShB9ZONCITE)[🐜](https://youtu.be/xy-NQzeXhYg)[🐜](https://youtu.be/NuHvkU_gpMk)[🐜](https://youtu.be/JrBdYmStZJ4)[🐜](https://youtu.be/-6Wu0Q7x5D0)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐜](https://youtu.be/0JW60sTcp9k)[🐜](https://youtu.be/MJ-3fZ5E_h4)
 <br><br><br>
 
-[ʇɥǝɹǝ ᴉs uo lᴉɯᴉʇ ʇo ʇɥǝ ʍoɹsʇ](https://youtu.be/r6FVk2k4qsM)
+
 
 <br><br><br>
 (😍‿😍) tuut tuut (😍‿😍) (ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ<br>
