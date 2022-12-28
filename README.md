@@ -1,5 +1,10 @@
 ### Hi [👋](https://github.com/f1f47a23/f1f47a23/blob/main/hi.md)
 
+<br><br>
+
+skills👨‍🏫: I'm skilled in the art of war and military tactics sir!
+
+<br><br>
 
 ### [🌎](https://f1f47a23.github.io/)
 
