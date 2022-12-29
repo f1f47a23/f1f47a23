@@ -2,7 +2,7 @@
 
 <br><br>
 ### 🤵 about me:
-  - I'm skilled in the art of war and military tactics sir! 👑
+  - I'm skilled in the art of war and military tactics sir! [👑](https://youtu.be/NAErBJlDNLc?t=55)
 
 <br><br>
 
