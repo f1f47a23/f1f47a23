@@ -6,7 +6,7 @@
 
 <br><br>
 
-### 🤵 this is the contents:
+### 🤵 this is the table of contents (TOC):
 
 AWESOME XRPL & WEB3 DEV RESOURCES[🧱](https://github.com/f1f47a23/AWESOME) <sub>*ALl you need to know for XRPL & WEB3 development*</sub>
 
