@@ -8,9 +8,9 @@
 
 ### 🤵 this is the table of contents (TOC):
 
-AWESOME XRPL & WEB3 DEV RESOURCES[🧱](https://github.com/f1f47a23/AWESOME) <sub>*ALl you need to know for XRPL & WEB3 development*</sub>
+AWESOME XRPL & WEB3 DEV RESOURCES[🧱](https://github.com/f1f47a23/AWESOME) <sub>*All you need to know for XRPL & WEB3 development*</sub>
 
-z1x xrp wallet[🧱](https://github.com/f1f47a23/z1x-xrp-wallet) <sub>*this is just my personal wallet and local environment tool: there's nothing to see here, move along*</sub>
+z1x xrp wallet[🧱](https://github.com/f1f47a23/z1x-xrp-wallet) <sub>*this is just my own personal wallet and local environment tool: there's nothing to see here, move along*</sub>
 
 my dummy TOC webpage[🌎](https://f1f47a23.github.io/)
 
