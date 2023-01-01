@@ -23,7 +23,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 
 [🐑](https://youtu.be/u743ovRYSdo)[🐜](https://youtu.be/yRVFiUbHo5c)[🐑](https://youtu.be/-1-3kADrPXY)[🐜](https://youtu.be/fU0e0xOlxso)[🐑](https://www.youtube.com/shorts/RC_c2tQKCnA)[🐜](https://youtu.be/2AD-4vytGf0)[🐑](https://youtu.be/VLVb5jPjhe0)[🐜](https://youtu.be/xdTVKlFt2X4)[🐑]()
 
-ʇuɐ ʇuǝᴉpǝqo uɐ sɐ noʎ ʇɐǝɹʇ ʎǝɥʇ ʇǝl oʇ 'ǝɯᴉʇ ǝɯɐs ǝɥʇ ʇɐ pɹɐʍoɔ puɐ pᴉdnʇs puᴉlq puɐ pɥd ɐ ǝq oʇ sǝʞɐʇ ʇᴉ ʇɐɥʍ
+ʇuɐ ʇuǝᴉpǝqo uɐ sɐ noʎ ʇɐǝɹʇ ʎǝɥʇ ʇǝl oʇ 'ǝɯᴉʇ ǝɯɐs ǝɥʇ ʇɐ pɹɐʍoɔ puᴉlq uoɹoɯ ɐ puɐ pɥd ɐ ǝq oʇ sǝʞɐʇ ʇᴉ ʇɐɥʍ
 
 <br><br>
 
