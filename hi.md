@@ -19,6 +19,13 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 [🚂](https://youtu.be/2wZ7acowkC4)[🚃](https://youtu.be/q_qgVn-Op7Q)[🚃](https://youtu.be/RBJj_UwkSyc)[🚃](https://youtu.be/dgsqX-IxrKc)[🐑](https://youtu.be/ONifZ2NMMow)[👀](https://youtu.be/qh2QVTQ3NOw)[👀](https://youtu.be/I2BC4lKWTOQ)[👀](https://youtu.be/Boq7rlWzVRI)[👀](https://youtu.be/pcWRQTOrN4o)[🐑](https://youtu.be/kZgE_sUrXFY)[🐑](https://youtu.be/sutgWjz10sM)[🐑](https://youtu.be/zCBNwGHPZ2M)[🐑](https://youtu.be/_mkiGMtbrPM)[🐑](https://youtu.be/1zqAfRtMZSg)[🐑](https://youtu.be/O_Ed-GWY5zw)[🐑](https://youtu.be/23EmJYSjW-g)[🐑](https://youtu.be/Xtr13I2ZXC8)[🐑](https://youtu.be/rpQ8ipjg1b0)[🐑](https://youtu.be/gI4UpBjdJ3s)[🐑](https://youtu.be/j_y88KAPKW0)[🐑](https://youtu.be/ZVmMvH84DFg)[△](https://youtu.be/6rrPP-QOF3k)[✝](https://youtu.be/IJffBsSg1kU)[☯](https://youtu.be/gXQ32ooefxA)[☯](https://youtu.be/GMI1OYUv4Qo)[☯](https://youtu.be/hvBKeyyjVjQ)[🥋](https://youtu.be/uaTyX8z1Zg0)[🖕](https://youtu.be/3fGQ8pF3wYU)[🖕](https://youtu.be/Xyzmv4390Z8)[🐑](https://youtu.be/7O-C49VpS30)[🐑](https://youtu.be/9k_ptxWsadI)[🐑](https://youtu.be/_N8WSXTC92E)[🐺](https://youtu.be/38AYeNGjqg0)[🐺](https://youtu.be/nYFAOBM-nLU)
 <br><br>
 ([ǝǝɟɐɔW uɥoſ](https://youtu.be/_hBjxVNA0i4)) dn ʞɔnɟ ┴ [ǝʞɐʍ](https://youtu.be/GLIv191WQSo)
+<br><br>
+
+[🐑](https://youtu.be/u743ovRYSdo)[🐜](https://youtu.be/yRVFiUbHo5c)[🐑](https://youtu.be/-1-3kADrPXY)[🐜](https://youtu.be/fU0e0xOlxso)[🐑](https://www.youtube.com/shorts/RC_c2tQKCnA)[🐜](https://youtu.be/2AD-4vytGf0)[🐑](https://youtu.be/VLVb5jPjhe0)[🐜](https://youtu.be/xdTVKlFt2X4)[🐑]()
+
+ʇuɐ ʇuǝᴉpǝqo uɐ sɐ noʎ ʇɐǝɹʇ ʎǝɥʇ ʇǝl oʇ 'ǝɯᴉʇ ǝɯɐs ǝɥʇ ʇɐ pɹɐʍoɔ puɐ pᴉdnʇs puᴉlq puɐ pɥd ɐ ǝq oʇ sǝʞɐʇ ʇᴉ ʇɐɥʍ
+
+<br><br>
 
 
 . . . . . . . . . . . . . . . . . . . . . . ¿uɥoɾ ǝlʇʇᴉl puɐʇsɹǝpun ∩ op ˙ʇᴉɥsllnq ɟo ǝɹᴉdɯǝ uɐ uᴉ ƃuᴉʌᴉl ɹ ∩ ¿ʍou ƃuᴉʌᴉl ∩ ɹ ǝɹǝɥʍ [🖕](https://youtu.be/Xyzmv4390Z8)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐑](https://www.youtube.com/watch?v=O_Ed-GWY5zw)[🧒](https://youtu.be/o4UCdLjOx9M)
