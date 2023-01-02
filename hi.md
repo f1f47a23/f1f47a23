@@ -31,7 +31,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br>
 
 
-. . . . . . . . . . . . . . . . . . . . . . ¿uɥoɾ ǝlʇʇᴉl puɐʇsɹǝpun ∩ op ˙ʇᴉɥsllnq ɟo ǝɹᴉdɯǝ uɐ uᴉ ƃuᴉʌᴉl ɹ ∩ [🖕](https://youtu.be/Xyzmv4390Z8)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐑](https://www.youtube.com/watch?v=O_Ed-GWY5zw)[🧒](https://youtu.be/o4UCdLjOx9M)
+. . . . . . . . . . . . . . . . . . . . . . ¿uɥoɾ ǝlʇʇᴉl puɐʇsɹǝpun ∩ op ˙ʇᴉɥsllnq ɟo ǝɹᴉdɯǝ uɐ uᴉ ƃuᴉʌᴉl ɹ ∩ [🖕](https://youtu.be/Xyzmv4390Z8)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐑](https://www.youtube.com/watch?v=O_Ed-GWY5zw)[🐜](https://youtu.be/qByRQyuMWD0)[🧒](https://youtu.be/o4UCdLjOx9M)
 
 <br><br>
 ### 陳式太極拳 [☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/JywRX-ZGmW4)[☯](https://youtu.be/jXGhcdhdMGs)[☯](https://youtu.be/RIn2ksyivT8)[☯](https://www.youtube.com/shorts/aN_h3Rqjj6k)[☯](https://youtu.be/CE9vH3vtrr4)[🥋](https://youtu.be/qpG__DSvAyk)[🥋](https://youtu.be/eCbmg4Zt_QA)[🥋](https://youtu.be/g2c_-9kIjyU)
