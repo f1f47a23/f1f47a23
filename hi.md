@@ -29,7 +29,11 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 
 
 <br><br>
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .  . <br>
+. . . . . . . . . . . . . . . . . . . . . . [🐜](https://www.youtube.com/shorts/cP8yrlEbIYU) . . . . . . . . . . . . . . . . . . . . . . <br>
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .  <br>
 
+<br><br>
 
 . . . . . . . . . . . . . . . . . . . . . . ¿uɥoɾ ǝlʇʇᴉl puɐʇsɹǝpun ∩ op ˙ʇᴉɥsllnq ɟo ǝɹᴉdɯǝ uɐ uᴉ ƃuᴉʌᴉl ɹ ∩ [🖕](https://youtu.be/Xyzmv4390Z8)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐑](https://www.youtube.com/watch?v=O_Ed-GWY5zw)[🐜](https://youtu.be/qByRQyuMWD0)[🧒](https://youtu.be/o4UCdLjOx9M)
 
