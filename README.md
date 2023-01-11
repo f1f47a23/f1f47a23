@@ -6,7 +6,7 @@
 
 <br><br>
 
-### 🤵 index [🌎](https://f1f47a23.github.io/)
+### 👉 index [🌎](https://f1f47a23.github.io/)
 
 <br><br>
 
