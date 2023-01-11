@@ -6,8 +6,7 @@
 
 <br><br>
 
-### 🤵 table of contents (TOC) ➩ ➩ ➩ [🌎](https://f1f47a23.github.io/) ⇦ ⇦ ⇦
-
+### 🤵 index [🌎](https://f1f47a23.github.io/)
 
 <br><br>
 
